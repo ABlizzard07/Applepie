@@ -1,4 +1,4 @@
-Here are the ingredients for making apple pie:
+Here are the ingredients you need for making apple pie:
 
 For the dough you will need:
 
